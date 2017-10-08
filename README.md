@@ -1,0 +1,2 @@
+# Berk-Bayrak
+Bilgi güçtür.
